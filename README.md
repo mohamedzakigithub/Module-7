@@ -1,1 +1,1 @@
-# Module-7
+# Module-7 activity Scratch Games
